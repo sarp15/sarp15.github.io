@@ -14,7 +14,8 @@
 ![image](https://github.com/user-attachments/assets/c0aab4e3-aaa5-4a71-905c-db4957e0ff15)
 
 ### Activity 4:
-
+![image](https://github.com/user-attachments/assets/2c3cd6e1-b51d-4a03-97e7-87d423bb723d)
+![image](https://github.com/user-attachments/assets/9e44a30e-cfc7-460e-a449-78006eb16280)
 
 ### Activity 5:
 
