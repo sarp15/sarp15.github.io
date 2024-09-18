@@ -10,7 +10,8 @@
 ![image](https://github.com/user-attachments/assets/0994327d-b840-4c79-b625-c4025b6a9cb4)
 
 ### Activity 3:
-
+![image](https://github.com/user-attachments/assets/4f38d2b7-befe-4abf-9296-f0efa30ea0c4)
+![image](https://github.com/user-attachments/assets/c0aab4e3-aaa5-4a71-905c-db4957e0ff15)
 
 ### Activity 4:
 
